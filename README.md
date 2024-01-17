@@ -7,7 +7,7 @@
 - Моб.: [+7 (937) 871-94-94](+79378719494)
 - Telegram: [sha_bash](https://t.me/sha_bash)
 - Email: [shabashev.va@yandex.com](shabashev.va@yandex.com)
-- GitHub:[sha-bash](https://github.com/sha-bash)
+- GitHub: [sha-bash](https://github.com/sha-bash)
 
 ## Профессиональные навыки
 
